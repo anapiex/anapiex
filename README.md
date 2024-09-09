@@ -7,6 +7,4 @@ meu nome é Ana Sofia
 -ultilizo esse espaço para minha organização e compartilhamento dos meus projetos 
 
 
-
-
-![](https://tenor.com/pt-BR/view/hello-kitty-gif-17633048277271932240)
+![](https://media.tenor.com/9LUr-_obbVAAAAAM/hello-kitty.gif)
